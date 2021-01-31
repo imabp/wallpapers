@@ -1,1 +1,1 @@
-Wallpapers that make you WOW 🔥
+Wallpapers that make you go WOW 🔥
